@@ -11,5 +11,5 @@ Tosia była bardzo podekscytowana. Czuła, że to wielkie wyróznienie móc zost
 Pani zapytala Tosie, czy dobrze dzisiaj spala, Tosia odpowiedziala, ze niezbyt.
 Wtedy pani zdenerwowala sie i wyrzucila Tosie z klasy.
 
-Alinka bardzo nie lubiła Tosi.
+Malinka bardzo nie lubiła Tosi.
 
